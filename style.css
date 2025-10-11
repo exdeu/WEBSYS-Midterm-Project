@@ -1,0 +1,10 @@
+header {
+    background-image: url('img/beach.jpeg');
+    background-size: cover;
+    background-position: center;
+}
+footer {
+    background-image: url('img/beach2.jpeg');
+    background-size: cover;
+    background-position: center;
+}
