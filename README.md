@@ -24,6 +24,7 @@ Link: https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.hellotravel.com%2Fev
 Skimboard:
 Link: https://media.assettype.com/sunstar%2F2024-09-28%2F0055vupu%2Fk7.jpg?w=1024&auto=format%2Ccompress&fit=max
 
+Beach: Mervans Jud Nadala
 CEBU BEACH CLUB
 Link: https://www.facebook.com/photo.php?fbid=594254860390369&set=pb.100094175805697.-2207520000&type=3 
 
