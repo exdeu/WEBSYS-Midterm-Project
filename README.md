@@ -40,5 +40,14 @@ Link: https://www.facebook.com/photo/?fbid=486119950188893&set=a.486119956855559
 JSJS MOUNTAIN RESORT
 Link: https://www.facebook.com/jsjsmountainresort/photos/pb.100063805281673.-2207520000/1491665547549348/?type=3
 
+MOUNT LANTOY
+https://bisayatraveler.com/2022/09/07/mount-lantoy/
+
+PUERTA MARINA
+https://exploreargao.blogspot.com/2014/02/just-outside-church-around-100-meters.html
+
+ARGAO CHURCH
+http://ceburoadtrip.com/st-michael-the-archangel-church-in-argao-cebu/
+
 CURBADA BY THE SEA
 Link: https://www.facebook.com/photo.php?fbid=1205496344928832&set=pb.100064054325054.-2207520000&type=3 
