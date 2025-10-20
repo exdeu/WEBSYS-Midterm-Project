@@ -23,3 +23,21 @@ Link: https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.hellotravel.com%2Fev
 
 Skimboard:
 Link: https://media.assettype.com/sunstar%2F2024-09-28%2F0055vupu%2Fk7.jpg?w=1024&auto=format%2Ccompress&fit=max
+
+CEBU BEACH CLUB
+Link: https://www.facebook.com/photo.php?fbid=594254860390369&set=pb.100094175805697.-2207520000&type=3 
+
+MAAYO ARGAO
+Link: https://www.facebook.com/photo/?fbid=992412516233359&set=pcb.992412636233347
+
+BULASA MANGROVES
+Link: https://www.facebook.com/photo/?fbid=371015715937594&set=a.112994905073011
+
+ARGAO BAY RESORT
+Link: https://www.facebook.com/photo/?fbid=486119950188893&set=a.486119956855559
+
+JSJS MOUNTAIN RESORT
+Link: https://www.facebook.com/jsjsmountainresort/photos/pb.100063805281673.-2207520000/1491665547549348/?type=3
+
+CURBADA BY THE SEA
+Link: https://www.facebook.com/photo.php?fbid=1205496344928832&set=pb.100064054325054.-2207520000&type=3 
