@@ -51,3 +51,23 @@ http://ceburoadtrip.com/st-michael-the-archangel-church-in-argao-cebu/
 
 CURBADA BY THE SEA
 Link: https://www.facebook.com/photo.php?fbid=1205496344928832&set=pb.100064054325054.-2207520000&type=3 
+
+Springs Sources:
+
+Bulasa Linaw:
+https://www.facebook.com/photo.php?fbid=10153657631463124&id=228310518123&set=a.10151755844508124
+
+Kaibo Spring:
+https://www.facebook.com/p/Kaibo-Spring-Resort-61560849260909/
+
+Katreasure:
+https://suroy.ph/ka-treasure-water-terraces-in-argao/
+
+Kilat Spring:
+https://www.facebook.com/p/Dandel-KILAT-Spring-Resort-100070522433703/
+
+Lalaan Spring:
+https://www.facebook.com/61557374996464/posts/look-lain-na-sad-nga-spring-ang-atongna-spotantubod-spring-in-argao%EF%B8%8Fgrabehh-ang-/122120346668245833/
+
+Liki Spring:
+https://www.facebook.com/share/p/1D6PH7dpN6/
