@@ -55,7 +55,6 @@ Link: https://www.facebook.com/photo.php?fbid=1205496344928832&set=pb.1000640543
 Springs Sources:
 
 Bulasa Linaw:
-<<<<<<< HEAD
 https://www.facebook.com/photo.php?fbid=10153657631463124&id=228310518123&set=a.10151755844508124
 
 Kaibo Spring:
